@@ -1,1 +1,1 @@
-erwerwerwerwe
+Ler primeiro que tudo.
